@@ -1,1 +1,1 @@
-# VOIS_AICTE_Oct2025_MajorProject_AdityaThakur
+# VOIS_AICTE_Oct2025_MajorProject_AdityaThakur_specialProject
